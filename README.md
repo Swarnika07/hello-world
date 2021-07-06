@@ -1,7 +1,7 @@
-# Hi there👋
+# 𝐇𝐢 𝐭𝐡𝐞𝐫𝐞👋
 
-Hi I am Swarnika 12 years old, I am interested in :
+нι ι αм ѕωαяnιкα 12 чєαяѕ σℓ∂, ι αм ιnтєяєѕтє∂ ιn :
 
-International Onlympiads, Spell Bee, Singing
-Learning many new computer languages as : Java, C++, PHP, C#, Python, Unity, SQL..........
-Improving my sports skills that are Basketball, Athletics, Football and Badminton
+𝐈𝐧𝐭𝐞𝐫𝐧𝐚𝐭𝐢𝐨𝐧𝐚𝐥 𝐎𝐧𝐥𝐲𝐦𝐩𝐢𝐚𝐝𝐬, 𝐒𝐩𝐞𝐥𝐥 𝐁𝐞𝐞 𝐚𝐧𝐝 𝐒𝐢𝐧𝐠𝐢𝐧𝐠
+𝐋𝐞𝐚𝐫𝐧𝐢𝐧𝐠 𝐦𝐚𝐧𝐲 𝐧𝐞𝐰 𝐜𝐨𝐦𝐩𝐮𝐭𝐞𝐫 𝐥𝐚𝐧𝐠𝐮𝐚𝐠𝐞𝐬 𝐥𝐢𝐤𝐞 𝐉𝐚𝐯𝐚, 𝐂++, 𝐏𝐇𝐏, 𝐂#, 𝐏𝐲𝐭𝐡𝐨𝐧, 𝐔𝐧𝐢𝐭𝐲, 𝐒𝐐𝐋..........
+𝐈𝐦𝐩𝐫𝐨𝐯𝐢𝐧𝐠 𝐦𝐲 𝐬𝐩𝐨𝐫𝐭𝐬 𝐬𝐤𝐢𝐥𝐥𝐬 𝐭𝐡𝐚𝐭 𝐚𝐫𝐞 𝐁𝐚𝐬𝐤𝐞𝐭𝐛𝐚𝐥𝐥, 𝐀𝐭𝐡𝐥𝐞𝐭𝐢𝐜𝐬, 𝐅𝐨𝐨𝐭𝐛𝐚𝐥𝐥, 𝐚𝐧𝐝 𝐁𝐚𝐝𝐦𝐢𝐧𝐭𝐨𝐧
